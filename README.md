@@ -294,3 +294,6 @@ For support and questions:
 ---
 
 **PropertyHub India** - Making real estate transactions simple, secure, and transparent for the Indian market.
+© 2025 Amit Shelke. All rights reserved.
+Copyright (c) 2025 Amit Shelke
+
